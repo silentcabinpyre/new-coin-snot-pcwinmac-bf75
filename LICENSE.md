@@ -1,4 +1,4 @@
-# 
+# Oficial new coin sniper bot complementos para Mac OS | Premium new coin sniper bot complementos para PC Windows. Con integración de router DEX y extracción MEV — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
